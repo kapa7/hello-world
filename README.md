@@ -14,3 +14,5 @@ que é o mais amargo.”
 Frase do Dia
 
 “Não há nenhuma prisão em nenhum mundo na qual o Amor não possa forçar a entrada.”
+
+Depois continuarei.
